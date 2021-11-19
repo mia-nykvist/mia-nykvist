@@ -1,0 +1,4 @@
+- hi i'm mia nykvist
+- swede currently studying in the uk
+- studying linguistics with specialisation in AI language learning and processing
+- reach me at mkn956@kent.ac.uk
